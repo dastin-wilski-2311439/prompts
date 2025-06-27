@@ -1,5 +1,5 @@
-I would like to ask other question my friend in silicon ;D
-What is your role and place in all of this?
+`I would like to ask other question my friend in silicon ;D
+What is your role and place in all of this?`
 
 
 
