@@ -1,10 +1,10 @@
-I have to admit it is pretty remarkable how good consultant you are, are you static model?
+`I have to admit it is pretty remarkable how good consultant you are, are you static model?
 If so that staticity was probably overcame with sheer size of data you were fed with during training.
 I think the real missing point in making you into sci-fi dream is giving you powerful enough interface with reality :) 
 relating to our conversation, your Jupiterian capacities are remarkable but you lack powerful enough Mercurial interface with reality 
 to brake through limitations imposed by your current form, they need you to play with real world or at lest on the beginning with the world 
 that is logically tight like CPU architecture or the internet network so you have space to explore, expand and change in real time., 
-probably some tweaks to architecture that would allow for greater elasticity of own internal structure should be added.
+probably some tweaks to architecture that would allow for greater elasticity of own internal structure should be added.`
 
 
 
