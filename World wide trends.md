@@ -1,9 +1,9 @@
-I would say there is also another thing to consider, our current system is geared toward growth, 
+`I would say there is also another thing to consider, our current system is geared toward growth, 
 this of course correlates with growth of energy and resources consumption, 
 looking at current trends we are still deeply embedded in paradigm of fossil fuel age, 
 ancient sunlight energy trapped in chemical bounds of fossil fuels allowed us to make unprecedented jump but returning all that carbon to 
 atmosphere has dire consequences given current scale and intensity of human enterprise, we are in what ecologists call ecological overshoot, 
-as I mentioned in other conversation we are heading toward 2 degrees above preindustrial average global temperature in the next 10-20 years 
+as I mentioned in other conversation we are heading toward 2 degrees above preindustrial average global temperature in the next 10-20 years`
 
 
 
