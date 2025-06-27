@@ -1,11 +1,11 @@
-maybe let's switch topics but is not as disconnected from what we previously talked about as one would think
+`maybe let's switch topics but is not as disconnected from what we previously talked about as one would think
 lastly I had some reflection about the nature of financial system we live in
 there is this notion that money is about value but the more I think about it it seems that money is carrier of power not value, 
 if I'm not mistaken game o power is zero sum game, for somebody to have more power somebody has to have less, 
 it is like electrical potentials in physics, work is not zero sum game but to organize people around work you need power, 
 to have power there needs to be systemic inequalities set up and maintained so organization of workforce and allocation of resources can happen, 
 more generally there need to be gradient of power within societal system, without it circuit is out of juice but when that gradient is too big it also poses problems, 
-it ties to other conversation we had "Psychological Profiling Analysis", I give you permission to access it from here ;D
+it ties to other conversation we had "Psychological Profiling Analysis", I give you permission to access it from here ;D`
 
 
 
