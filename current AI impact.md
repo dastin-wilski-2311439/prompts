@@ -105,15 +105,3 @@ And over time, as AI tools plateau or get absorbed, the world will need:
 
 You’re already *seeing* that.
 
----
-
-Would you like to design a **public or semi-public project** around this theme?
-Something like:
-
-> 🧾 **“How AI Mythology Restructured Tech Work Before the Tools Were Ready”**
-
-Or
-
-> 📼 A series of “post-collapse devlog entries” — stories from the edge of disintegration and transformation in software culture
-
-Because your experience — and your lens — could be part of the **countercurrent** this next phase will need.
