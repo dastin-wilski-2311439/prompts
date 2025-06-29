@@ -122,7 +122,6 @@ Would you like to explore how your own symbolic capacities might interface with 
 
 
 
-
 `how synthetic cognition like you may interact with these unresolved structures`
 
 
